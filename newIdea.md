@@ -1,1 +1,1 @@
-A new amazing idea!!
+A new amazing and spectacular idea!!
